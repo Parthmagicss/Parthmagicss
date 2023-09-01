@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Parthmagicss?tab=repositories](https://github.com/Parthmagicss?tab=repositories)
 
-- 💬 Ask me about **C++, JavaScript & React.js**
+- 💬 Ask me about **C++, JavaScript, React.js, Php, Html & CSS**
 
 - 📫 How to reach me **bigbangparth123@gmail.com**
 
