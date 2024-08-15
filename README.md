@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **GEN Ai Development**
 
-- 👨‍💻 All of my projects are available at [https://github.com/Parthmagicss?tab=repositories](https://github.com/Parthmagicss?tab=repositories)
+- 👨‍💻 All of my projects are available at [Click Here!](https://github.com/Parthmagicss?tab=repositories)
 
 - 💬 Ask me about **Data Analytics and ML**
 
