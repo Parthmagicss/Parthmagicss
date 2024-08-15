@@ -11,13 +11,13 @@
 
 - 🤝 I’m looking for help with **GEN Ai Development**
 
-- 👨‍💻 All of my projects are available at [Click Here!](https://github.com/Parthmagicss?tab=repositories)
+- 👨‍💻 All of my projects are available at [Repo Link!](https://github.com/Parthmagicss?tab=repositories)
 
 - 💬 Ask me about **Data Analytics and ML**
 
 - 📫 How to reach me **parthib.banerjeee@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1B30aLyyIO_6kLAsL7K_MM_gKZKfYxx1S/view?usp=sharing](https://www.linkedin.com/in/parthib15/)
+- 📄 Know about my experiences [Click here!](https://www.linkedin.com/in/parthib15/)
 
 - ⚡ Fun fact **I think that I can be a Stock Trader**
 
