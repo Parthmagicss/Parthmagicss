@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **parthib.banerjeee@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1B30aLyyIO_6kLAsL7K_MM_gKZKfYxx1S/view?usp=sharing](https://drive.google.com/file/d/1B30aLyyIO_6kLAsL7K_MM_gKZKfYxx1S/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1B30aLyyIO_6kLAsL7K_MM_gKZKfYxx1S/view?usp=sharing](https://www.linkedin.com/in/parthib15/)
 
 - ⚡ Fun fact **I think that I can be a Stock Trader**
 
