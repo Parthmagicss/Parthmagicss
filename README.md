@@ -9,13 +9,13 @@
 
 - 👯 I’m looking to collaborate on **Open Source Projects**
 
-- 🤝 I’m looking for help with **Competitive Programming**
+- 🤝 I’m looking for help with **GEN Ai Development**
 
 - 👨‍💻 All of my projects are available at [https://github.com/Parthmagicss?tab=repositories](https://github.com/Parthmagicss?tab=repositories)
 
-- 💬 Ask me about **C++, JavaScript & React.js**
+- 💬 Ask me about **Data Analytics and ML**
 
-- 📫 How to reach me **bigbangparth123@gmail.com**
+- 📫 How to reach me **parthib.banerjeee@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1B30aLyyIO_6kLAsL7K_MM_gKZKfYxx1S/view?usp=sharing](https://drive.google.com/file/d/1B30aLyyIO_6kLAsL7K_MM_gKZKfYxx1S/view?usp=sharing)
 
